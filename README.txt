@@ -1,2 +1,3 @@
 That repositories was made for my future successful home works
-Hi, my name is Anton and i am an artist... i am  perfomance artist...
+Студент Санкт-Петербуржского университета, сремящийся найти свое место на смежном со своей специальностью поприще
+
